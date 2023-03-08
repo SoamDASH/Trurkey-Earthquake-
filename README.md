@@ -1,0 +1,1 @@
+# Trurkey-Earthquake-
